@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ThatGoogolGuy
 - 👀 I’m interested in nerd stuff
 - 🌱 I’m currently learning python and some of scratch also aerospace
-- 💞️ I’m looking to collaborate on, not sure
+- 💞️ I’m looking to collaborate WITH MY BEST BUD PI
 - 📫 How to reach me, discord: that_googol_guy
 - 😄 Pronouns: He/HIM
 - ⚡ Fun fact: first succsesfull line of code i ran was on 3/13/2023:D
